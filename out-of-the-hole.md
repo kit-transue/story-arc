@@ -12,7 +12,7 @@ We are almost on it... we did it guys... trying it for third time... trying to l
 A powerful mind can achieve anythink
 
 ## Chapter 4: Recovery
-After hard days. and long nights we got to this magical place. Where we found food, water and the most wonderful place to rest!  
+After hard days. and long nights we got to this magical place. Where we found food, water and the most wonderful place to rest!  It was a dream come true! 
 
 ## Chapter 5: Happily ever after
 
